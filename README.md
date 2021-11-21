@@ -6,4 +6,4 @@
 - **Carlos Fernando Montoya Cubas** - [Concytec](http://dina.concytec.gob.pe/appDirectorioCTI/VerDatosInvestigador.do;jsessionid=0a57f731d8f19e91a96dd3446392?id_investigador=19358)
 ---
 
-⌨️ con ❤️ por [Claudiars20](https://github.com/Claudiars20) 😊
+⌨  por [alexanderhg222](https://github.com/alexanderhg222)
